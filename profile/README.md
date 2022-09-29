@@ -1,3 +1,3 @@
 # Hi there 👋
 
-🙋‍♀️ Welcome to the **Skylead Technologies** organization!<br/><br/>
+🙋‍♀️ Welcome to the **Code Highlights** organization!<br/><br/>
